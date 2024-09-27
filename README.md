@@ -1,0 +1,5 @@
+![122450002_Arafi Ramadhan Maulana_Tugas Pertemuan 2_page-0005](https://github.com/user-attachments/assets/16a826ee-2d10-492d-bed9-fa119fa0f57c)
+![122450002_Arafi Ramadhan Maulana_Tugas Pertemuan 2_page-0004](https://github.com/user-attachments/assets/74eeca19-5224-474c-912f-7bcac2a6884f)
+![122450002_Arafi Ramadhan Maulana_Tugas Pertemuan 2_page-0003](https://github.com/user-attachments/assets/90c91300-bb93-4241-bfa9-4df7ffc38ff8)
+![122450002_Arafi Ramadhan Maulana_Tugas Pertemuan 2_page-0002](https://github.com/user-attachments/assets/45691276-16e1-499e-b7ec-da531918cff2)
+![122450002_Arafi Ramadhan Maulana_Tugas Pertemuan 2_page-0001](https://github.com/user-attachments/assets/527d3b9c-a39d-4771-9db3-f208cd88bb3a)
